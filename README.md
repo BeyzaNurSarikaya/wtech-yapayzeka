@@ -1,1 +1,1 @@
-# wtect-yapayzeka-
+# wtech-yapayzeka
